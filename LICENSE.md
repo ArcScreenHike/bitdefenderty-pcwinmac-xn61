@@ -1,4 +1,4 @@
-# 
+# Nuevo Bitdefender Total Security herramientas para Mac OS | Nativo Bitdefender Total Security herramientas para PC Windows. Con limitación de velocidad y actualizaciones automáticas — optimizado para el máximo rendimiento en cada plataforma.
 
 
 
